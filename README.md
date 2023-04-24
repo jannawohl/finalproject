@@ -1,4 +1,4 @@
-Welcome to my final project! I used Photoshop to create a Converse shoe collection that is inspired by famous works of art!
+Welcome to my final project! I used Photoshop to create a Converse shoe collection that is inspired by famous works of art.
 
 SOURCES:
 
